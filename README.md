@@ -18,6 +18,9 @@ $\color{#c93e3e}  ‎   she/they/he/it .$ <br>
 
 <p align="center">
 
-<p align="center"><img align="center" width="50" height="50" src="(https://github.com/user-attachments/assets/c40a9bae-06e8-4c8a-b19d-303cc3781382)">
+<p align="center"><img align="center" width="150" height="150" src="https://github.com/user-attachments/assets/21a8853d-d30a-4c17-a45b-8f976385928e">
+
+$\color{#570000}  ‎   graphic by lavendergalactic .$ <br>
+
 
 
